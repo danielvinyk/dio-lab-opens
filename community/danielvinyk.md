@@ -1,4 +1,4 @@
-# 🖖🏼🤓 Olá, Pessoal! Meu nome é Daniel Vinícius 👷🏼.
+# 🖖🏼🤓 Olá, Pessoal! Meu nome é Daniel Vinícius 👷🏼
 Sempre fui entusiasta da tecnologia e atualmente estou em transição de carreira para a área da tecnologia.
 
 ## ⚙️🧱📐♻️ Formação 
